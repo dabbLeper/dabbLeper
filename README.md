@@ -1,0 +1,5 @@
+-  Greetings! I’m @dabbLeper a master of none
+-  I’m not interested in coding that's why I build this account to compile my incoming bunch of personal projects
+-  I’m currently learning the roadmap of becoming Blockchain Developer
+-  I’m not looking to collaborate on anyone who's not interested in me, so if you're the opposite
+-  Reach me through this email espinojuanpaulo@gmail.com 
